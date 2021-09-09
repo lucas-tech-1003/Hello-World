@@ -1,2 +1,2 @@
 # Hello-World
-Just a repo
+Hi, I'm the god of this world.
