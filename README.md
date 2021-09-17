@@ -1,2 +1,2 @@
 # Hello-World
-Hi, I'm the god of this world.
+Hi, I'm sanduhwella-hui, an instance of humanbeing.
